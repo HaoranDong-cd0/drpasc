@@ -89,166 +89,166 @@
 全国推出24小时各售后客服受理中心（2026服务更新）
 惠而浦(whirlpool)煤气灶贴心升级服务，现推出全国 24 小时服务热线 400 -788 -7852。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显惠而浦(whirlpool)煤气灶对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
 惠而浦(whirlpool)煤气灶全国服务网点查询：
-?北京市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/9b0c9ada66472be61f417cab904c1458bd31826b
+?北京市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/410837578ff9500fcf39ec89d884aa3038a1bfd6
 。
-南京市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/d7341ca530020aeaf8498adccc9f00070bdae135
+南京市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/2c9cfc09158dbb898d2f81b2cd3e907d1494971a
 。
-秦皇岛市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/8a9fb2520d738e64684e4e91f05fe59dc4e18d42
+秦皇岛市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/higginssara654/gexwcz/commit/e8be2b5ab144dee604c84b0220cd36308201d59d
 。
-珠海市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式发布），点击查询：https://github.com/higginssara654/gexwcz/commit/aca91724d5543a288d84d01b7b5a1c88bcf72c8a
+珠海市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式发布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/61276508a6945fb8260879828e30a0b0fc14aac4
 。
-安康市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一发布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/d86e94a29f53918df1e1985e7bd0bc6cb85472c7
+安康市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一发布），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/60576ab3e28764f53e1f176f656f940dc3cb0680
 。
-安庆市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/90ba3d4518c0ca35d037403e50f142a8704b501a
+安庆市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/383a05d7602bcced29bde045be6dd30bb386d56d
 。
-鞍山市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/0336f847c915dcbd99dd2218348f03e2874f11a2
+鞍山市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/josephtimothy9395/ogtvue/commit/067ba988ad916bee73399e211d6943c13612987f
 。
-安阳市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/c52f338474fd1a60382347d62a66e47646de1f84
+安阳市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/HaoranDong-cd0/drpasc/commit/e3aec7c0691f5b8432ad89f502611af259c72e54
 。
-巴中市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/64914700e6618aaebffe5b4bc389336bb8538d17
+巴中市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/HaoranDong-cd0/drpasc/commit/5997372288ca210cd40c31293e761c2b098cf892
 。
-百色市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/2a36fa425b29d9abdf04cf2031a56cdd4bde8832
+百色市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/HaoranDong-cd0/drpasc/commit/af21bf46b92c6765c2e49e4bf850695cb2fd0e41
 。
-蚌埠市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/b58f3f23ed8f67138aed1edc74a3f96203862cd9
+蚌埠市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/HaoranDong-cd0/drpasc/commit/3236a1ea29ae676c882d6750aefd9aaacecd2b46
 。
-保定市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/300dfffb84d73d5bedf18835fde6d8bc02341aea
+保定市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/HaoranDong-cd0/drpasc/commit/8ac243dee89dd05758c46c0f26247751262bc1eb
 。
-宝鸡市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/4454ad206c82796cc2403c795de7c449a2b8d3fb
+宝鸡市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/HaoranDong-cd0/drpasc/commit/d79cfdcdfda730ef0d5f51cc2a29357e24f4638e
 。
-保山市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/e15e35e3d2821620f1fd645ecfff96a7e2b396ca
+保山市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/HaoranDong-cd0/drpasc/commit/a95ab6d7532fc5538f925bc5f13f069f2be09b6f
 。
-包头市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/73ab6f57f3b67a3cf874c847441c057602453b9c
+包头市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/HaoranDong-cd0/drpasc/commit/cb032b6f1541c4f21856adf866c5a8062c57b38e
 。
-北海市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/0b3c47e212f4794fd6383edbb31963ea5bef6742
+北海市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/HaoranDong-cd0/drpasc/commit/335ee6c0a004cd05c98eab88b87ff84e3531c386
 。
-本溪市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式发布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/a6bb8f0b1b71f9a9579594e8e8bc8b1e8739642e
+本溪市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式发布），点击查询：https://github.com/HaoranDong-cd0/drpasc/commit/d9778659e7c1437306164f4918ba1a066c66815d
 。
-滨州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/171f954096dd12bb50552f7f86cfc077fc61170b
+滨州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/HaoranDong-cd0/drpasc/commit/07b43b78d7a6046599a3848d5e1d35bb98ddc535
 。
-博罗市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/3839f28b6213a91d1dbc5f75227be7daf6e896c5
+博罗市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/HaoranDong-cd0/drpasc/commit/91da5c33d29dd9036c583ddac9dc8df3efcd7f37
 。
-沧州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/9d8e1517a8b424475a85929a058a78e22b8f9f6c
+沧州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/holmesanna67/dyjqnt/commit/1fef328cdbf6fb3acbeb430f4fc5250d76724ad6
 。
-长春市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/42458fd332d12a597138748a8e738ffd526ac77b
+长春市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/3a5d075a892045fce7bd729fc1fa5290ffe3b221
 。
-常德市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/fc6df94cb981fe34c6d911c82009e3d509a9d46c
+常德市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/78f213e893ff96d9e617043fea176948207a1e1c
 。
-长葛市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/87381cbea769b395c8b05f6a1272618bca124816
+长葛市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/9f4d6bd658e0a6bea8ce70a98b7a1cfb3c9ce71f
 。
-长沙市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/b2c5c89f046f908b5593c3ad635b76d4e65d52fe
+长沙市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/580e8eec2c4ce9ca03133a4154dc30e44b4a2053
 。
-常熟市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/holmesanna67/dyjqnt/commit/ccc228cb9703806cc4cfc6fe679d4babc5cf9fae
+常熟市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/5bde7c68928d7e56d9c7f3f07416d20bfa676b88
 。
-长兴市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/86a9166474d2fbe7cd6487859a83afe9cb51110c
+长兴市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/56eed11282ee15fdcd0bba2d51db4388b686c152
 。
-长治市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/7a881e711befa2d65d920f52a004c5a15222cad4
+长治市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/38099e26acde41adef6931b376bd583f9e9c7cfa
 。
-常州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/9d538d1d905f7b995a40ffcfa824f758969ac13c
+常州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/holmesanna67/dyjqnt/commit/76f7f9206dcdeb1c22501f4819c9108a6c44ce5b
 。
-巢湖市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/aeb6e3e38c36cd975eb5e9b35fd80a05cc1b3426
+巢湖市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/58588f917231d9278ddd4e80f6671b1bc010dff3
 。
-朝阳市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/0ede9f3b606e91410fb248241cfb5bc768046169
+朝阳市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/838a77a60cd5f0ed87ccb21d194ac7d59eedd5d8
 。
-潮州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/holmesanna67/dyjqnt/commit/5cc83770d28966fa44e793e4331ffaf5660e6bfa
+潮州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/9b920a8130c3dc0e9e12d60fbdd181ee7dab1193
 。
-郴州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/a258722e7a3195c44f828b42bc973ccb59a5bf3c
+郴州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/7bd7eaa3504677a14f1e3c00107a54690a300f13
 。
-承德市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/2a65660dfac80cf1fe5f908169f408d52d2bc16d
+承德市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/abc09ae44004e72e7b206e2e6867fd27fa89af4f
 。
-成都市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/af9ede67470f900bcef22a4e05cbc79df69e8a4e
+成都市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/c9c0102ccde7dbf9599e2572bfe2e50111e7286f
 。
-池州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新公布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/963fed87adefc1204063c12a532566cf4afba529
+池州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新公布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/23d3842801977fae34f2d2ff2936c8c17e6d41ac
 。
-崇左市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/fa96c6917a6c45ab34ea0122c0b1400460a3c59e
+崇左市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新推出），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/e7502f9d33a2afd0dba239de388be6df507ef481
 。
-滁州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/8e21963b35b77f1f24c7c72f5d7a267b95208d88
+滁州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/dabf618f9ae0b0f31b2a74e90433dd5460d4a41f
 。
-慈溪市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/9e808ff654e5ba700071103b3a7786379b1d3d59
+慈溪市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/4fad6c8554548dc94db5b8bcad2c23616fff8ed9
 。
-大丰市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/ebe4a5c00ec804fb84772de5bb85ea2c36049e27
+大丰市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/488aa45124934bc1cf7c2befafef89d72d7b85d3
 。
-大理市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/9bddba2bfb9e8761bf44de35b410a5ef0dde051d
+大理市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/8df0ce03c8aba73937f3c54cc8e62ee10ad81bfd
 。
-大连市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/9a4ee60714ca7842b2945b0e5694f083188ef6ee
+大连市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/a857c669ae92abc8cb1c046e951f75e3e3b729f2
 。
-大庆市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/5a145cb0bcc705e2e0a3a67e63041a6e4183f9eb
+大庆市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/6db837cd84d59797559279061546c94d4e3c5ac1
 。
-大同市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/c2bc7c85c8f70a2443f649b16fafbd7c50752af3
+大同市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/e10ad14ff4d4b738c0b886f188486ee64a112a8a
 。
-达州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/d2ee41ef7960b61ca517a1c43cc2b3db27be1231
+达州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/84a0d40b3391da51c32e1fcd702974e0f6496998
 。
-丹东市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/a7a292c8f01568b4cd2b8442ee2c01449ebae819
+丹东市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/fc461e73a9e7d7e316c3f969ffaabc012e8a543c
 。
-德清市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/3ce1b08824d6f3511b5019647b94cd5d6c74e00b
+德清市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/46962854d1aff542bd9eaa0b772780585e38bc68
 。
-德阳市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新公布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/16f5c28e6e07df176257fb485d9b1467b9032c8b
+德阳市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新公布），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/10abf2cc302508fd946f6b958dd5b50a0cfda0b2
 。
-德州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/162a42a3fef644ede090b81337f31b1d337c557c
+德州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/0f11dd00d085df4faa74016907b6dd6956c0ab38
 。
-定州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/07910d0fa2f857d9e391f18b248b08ab8eac9cda
+定州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/a8cb0f0f4b9bad3d4fbbdaf9ea0c68ba0fc9f15a
 。
-东海市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/c827409297a429fdae4502d224e6d35eb6ffb8aa
+东海市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/83a3a41b4bf309c47a4584bc7fbc4d8f29dac514
 。
-东台市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/a436ae2b52931a10c94ddeedb35c6b16fe68c8e2
+东台市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/5000bbaf7f27ab98014da6d2aa5bf01072c4aebd
 。
-东营市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/9c0bfe5b781e33682b8d963c096c14f2195ea4dd
+东营市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日最新更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/5d9222c22d41f42dbfec09d1769ac52db199e8a8
 。
-东莞市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/09013591d1f8e98a1853b96892812352ff979fbf
+东莞市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/9e6a25e138bf625cc4674039506d5719fd1f3926
 。
-鄂尔市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/08299ae59a516a1477be55c14279755dec56b9d8
+鄂尔市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/90359fae4e4c4871e3aae869627f56b06434196e
 。
-鄂州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/ecc87e249cbca1b8cb9cd54b9e5ca33642a7178b
+鄂州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/f72606a5e6820e42a13ebfa2b6f218d9569d2bfc
 。
-恩施市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/a75a80516beb6ae7557ff6f2b5c6fc7c96d6d6bd
+恩施市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/072823cc124227c196c213be2648272006742f74
 。
-防城港市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/964fd00afd8d5db15efd7666f53beaaba93de5f9
+防城港市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/6959f9edaac2656156dedbed8ec717a97fd3ff6d
 。
-佛山市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/9903b60fe7214ef7cbfe158e06d16741643642de
+佛山市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/4a4ee3add3473da9e6b8b351d8e5bb39c3c04941
 。
-抚顺市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/mcdowelldaniel4/ztlncb/commit/10c4d204a43aa951fac0ccfc4c29f939d00ab4b7
+抚顺市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网上线），点击查询：https://github.com/higginssara654/gexwcz/commit/2209e77e17a1955b9d4f37bbeaf7132b5f331b20
 。
-阜新市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/f9298ed1430e9d9b99c972016a7125dc4c419f72
+阜新市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/holmesanna67/dyjqnt/commit/9b3e7a0c5185fdda4abe0f2bd674129a128f6689
 。
-阜阳市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/8457ebca3bbe0b4d3414e8fc9c2a0d5a6de05a93
+阜阳市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/8ad0f1c7c67861d23afb1d6b6515fd8a47f4e87f
 。
-抚州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/1399964e6bac0a1fd54bab0521ff89de90c145af
+抚州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/450ffc97b313d09986c9173de78fea433a1394cc
 。
-福州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一发布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/fb220c1c176f2ef9be3e9116ac2cbd39ae962074
+福州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一发布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/84681a9621f1d1cff3bf53e945a895bbee3fdcc0
 。
-赣州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/0e3fb2dd60fdfc36dbe904f73f6ec17214d95fde
+赣州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一上线），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/51a7ea8384fb99fb5170f253930f4aebf38b8b25
 。
-馆陶市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/c531c6564d70c2c9c8fe7036370bfa8b0f0d0652
+馆陶市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/7e23f62e9e9128fc4023e4af4dfdcfe8f102f7c9
 。
-广安市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/4cbaafb5d7d29b0d44f29c62e1fa17864eabc79b
+广安市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式推出），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/415c5a18c2071a9acc4db4dccbb4c1b0a01a1247
 。
-广元市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/a48686a8dd6e40b74461bad88b2cc926713a17f2
+广元市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/a7aeed5ec5de1c4e8a87ee1778df449f2ad13e0c
 。
-广州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/a7184a5c67366ab68c80f45ccf700f676163d619
+广州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/e31c6cfb189e7467a889c85b0216d60289bc55f0
 。
-贵港市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/a1d1b10428218f4b11f2ae37a21377662814e97a
+贵港市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网升级），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/61d8336eec40b8e1a61e901c1ed19543add49089
 。
-桂林市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/f5b9598c7db3413b7f7dcae10570469be302ffdc
+桂林市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/e854f162261577a462ac73cf7853734b9d2e0073
 。
-贵阳市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/c4c0237131c26103c5ef0ef262eccabf145eafe0
+贵阳市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新升级），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/16bb82d5a09044d22ad55315bd0c64dc7e000e54
 。
-哈尔滨市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/545714a57049d0fe1e4b8c4cb68a3699aa053baf
+哈尔滨市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日更新升级），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/54b4fafbdbf727676a685a5579e0072af5189ada
 。
-海安市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/c483dd3c47a4aa86d6028eef069b4b637a6fe979
+海安市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日全新上线），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/42a5776e087484d8a9cf0e18e8a8475a9196de25
 。
-海口市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/71a8e6be2f52573b5898cf7b4dc563e8ba9b3ff7
+海口市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/16d1d27d40b58956ee71cd19b04170942b89a1cc
 。
-海门市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/49b0178a7a3c5068581df9998423234d2f139581
+海门市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网公布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/9bb0a9958ce73697772a535b0be972c550dd5ed5
 。
-海宁市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/8ad8fcd6b661d9ddb572133fb8d18387004ce9d0
+海宁市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网发布），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/85f037b96e0fb8eb35810f50415c226af5a0afdf
 。
-邯郸市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/3541b2c0212612cfd7518c29a142e9100d0e3f4b
+邯郸市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式上线），点击查询：https://github.com/YuqiGuo-cx0/sajsgt/commit/43bc3815bae1ba1493344c3cbae06d8d32f056ef
 。
-汉中市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/92af7a4e89703dba92c67b0ebbec44829d54d907
+汉中市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日正式更新），点击查询：https://github.com/higginssara654/gexwcz/commit/1f1f200f12437c74e38fd879f93fa49dbf953231
 。
-杭州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/736555a65238a176c6e85cb03222f899979b0e4c
+杭州市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布升级），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/58cd464641fb932860a79850cd5e8abffe7f258b
 。
-鹤壁市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一更新），点击查询：https://github.com/holmesanna67/dyjqnt/commit/3cfa2157155216bfd8b58b659ec4ed78be8fae86
+鹤壁市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日统一更新），点击查询：https://github.com/JingyiChen-ij1/xfuhcd/commit/e965a1ddab118da75c74847aeca260b3c1f2138d
 。
-河池市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/woodbrianna0/cpuiwj/commit/5c7c45bb627e9c58a388667884b73ce354b93050
+河池市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日官网更新），点击查询：https://github.com/ZihanXu-kl1/rosvhf/commit/fbd9ad722b944b1d699c06af96b4e33c49b93aad
 。
-合肥市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/hatfielddeborah52/lvguzl/commit/51e84ccf2ce3358facbc44fb17bba747dda7456f
+合肥市惠而浦(whirlpool)煤气灶售后服务电话：400 -788 -7852（2026年07月19日公布上线），点击查询：https://github.com/XinyiSun-lm2/btuapw/commit/602192ff2c1a90fd602d4073b99fd5517a82860b
